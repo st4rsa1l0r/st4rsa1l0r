@@ -1,4 +1,5 @@
-star/sam/ai | feel free to int with me | info!
+૮₍ ˃ ⤙ ˂ ₎ა
+./づᡕᠵ᠊ᡃ່࡚ࠢ࠘ ⸝່ࠡࠣ᠊߯᠆ࠣ࠘ᡁࠣ࠘᠊᠊ࠢ࠘~~~~♡ 
 https://0lix1information.carrd.co
 
 <!---
